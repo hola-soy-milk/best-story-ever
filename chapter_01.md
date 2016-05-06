@@ -2,6 +2,6 @@
 
 It was a dark and stormy night.
 
-Our intrepid protagonist stood stoically before the twilight.
+Our boring protagonist stood cowardly before dinner.
 
-In their eyes, determination beyond description.
+In their eyes, fear beyond description.
