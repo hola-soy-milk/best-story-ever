@@ -9,3 +9,5 @@ In their eyes, determination beyond description.
 A mighty wind blows from the south, swooshing their hair all over the place.
 
 From the east, a dragon's shadow looms.
+
+... I'M SORRY RAMON :(
